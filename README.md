@@ -8,7 +8,7 @@
 [+] Clone Categories
 [+] Clone Boost (needed to buy from discord)
 
-## What You Can Get?
+## What You Cant Get?
 
 [-] Server Texts
 [-] Server Boosts
