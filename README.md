@@ -17,4 +17,5 @@
 
 ## Discord
 
-https://discord.gg/t78RhcgMBp
+[Discord Bypassing Application](https://discord.gg/A8J8qHnF3y)
+[Discord Without Bypassing Application](https://discord.gg/qR7q5HnFhQ)
